@@ -1,5 +1,5 @@
 # 💫 About Me:
-im a student BE(EEE)<br><br><br>
+I'm a student BE(EEE)<br><br><br>
 
 
 ## 🌐 Socials:
